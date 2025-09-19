@@ -1,1 +1,1 @@
-İlk değişiklik hebele hübele eğvle üğvle
+İlk değişiklik hebele hübele eğvle üğvle alayın koyuyım
