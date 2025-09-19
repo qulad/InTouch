@@ -1,1 +1,1 @@
-İlk değişiklik hebele hübele eğvle üğvle alayın koyuyım
+# This project is for magarajam competition
